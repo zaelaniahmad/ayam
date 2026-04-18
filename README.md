@@ -1,2 +1,0 @@
-# alifiaaa
-buat love
